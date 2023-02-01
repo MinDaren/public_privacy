@@ -1,8 +1,8 @@
-Thank you for using "feimao novel".
+Thank you for using "chang novel".
 
-"feimao novel" is a service of "
+"chang novel" is a service of "
 
-feimao novel". The terms "us", or "we," (as the
+"chang novel". The terms "us", or "we," (as the
 
 case may be) refer to us These Terms of
 
@@ -248,7 +248,7 @@ be repeatedly infringing the rights of copyright holders. If you believe that
 
 an us product infringes your copyright, please contact iTranslate’s copyright
 
-agent at hzgj2018@gmail.com
+agent at mayanyan2023@gmail.com
 
 Termination
 
@@ -270,7 +270,7 @@ or flagrantly violating these Terms, a court order, or danger to other users)
 
 where we may suspend immediately. You may cancel your account at any time by
 
-sending an email to hzgj2018@gmail.com.
+sending an email to mayanyan2023@gmail.com.
 
 Warranty Disclaimers
 
@@ -414,8 +414,8 @@ inquiries as detailed below:
 
 Our team can be contacted
 
-hzgj2018@gmail.com
+mayanyan2022@gmail.com
 
 END OF DOCUMENT
 
-©2022 "feimao novel". ® All rightsreserved.
+©2022 "chang novel". ® All rightsreserved.
